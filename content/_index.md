@@ -1,5 +1,5 @@
 ---
-title: 'ro1e.com: A don Federation Company' featured_image: '/images/gohugo-default-sample-hero-image.jpg'
+title: 'ro1e.com: XIΞLΞVAN SOLUTIONS' featured_image: '/images/gohugo-default-sample-hero-image.jpg'
 description: "ro1e.com is under construction."
 ---
 
