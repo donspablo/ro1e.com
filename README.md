@@ -5,4 +5,4 @@ international relations, the term can be used similarly when preceding a nation 
 status. Alternatively, the term can be applied to tools of dominance in international relations, such as nuclear
 weapons, which predetermine which role a nation role-plays among others."
 
-T®ᶜᵒᵐ don Federation👁 London https://ţ.com @donpablonow c@ţ.com
+👁 XIΞLΞVAN SOLUTIONS / https://xı.com
